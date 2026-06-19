@@ -1,5 +1,5 @@
 # 💫 About Me:
-I m a gen ai and devops dev making pricepilot a startup and looking for genai jobs
+I m a Gen AI and DevOps Devepeloper
 
 
 ## 🌐 Socials:
